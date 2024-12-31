@@ -1,2 +1,2 @@
 
-**![.](https://pixels.crd.co/assets/images/gallery20/72294f9a.gif?v=99d3974e)୨![](https://komarev.com/ghpvc/?username=asphole&label=♯&color=656C53)୧![.](https://files.catbox.moe/9arw5k.gif)**
+**Disgusting stalker count: ![](https://komarev.com/ghpvc/?username=asphole&label=♯&color=656C53)**
