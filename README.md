@@ -1,2 +1,2 @@
 
-**Disgusting stalker count: ![](https://komarev.com/ghpvc/?username=asphole&label=♯&color=656C53)**
+![](https://komarev.com/ghpvc/?username=asphole&label=Stalker+count&color=ff0000)
